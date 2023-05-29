@@ -1,0 +1,2 @@
+# Dota2TestUltraSuperHard
+ONLY FOR RUSSIAN PEOPLE
